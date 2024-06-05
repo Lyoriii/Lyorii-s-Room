@@ -6,4 +6,4 @@ Me chame de Lyori
 - Me desenvolvendo na linguagem JavaScript
 - Uso esse espaço para organização dos meus projetos
 
-![](https://media1.tenor.com/m/xAwgnjNbIacAAAAC/demon-slayer-nezuko.gif)
+![](https://media1.tenor.com/m/yrjtIxrgrSAAAAAC/luffy-doflamingo.gif)
